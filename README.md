@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MisterEMan517
-- 👀 I’m interested in basketball and lacrosse
+- 👀 I’m interested in basketball and running
 - 🌱 I’m currently learning how to code a little bit
 - 💞️ I’m looking to collaborate on how to find unblocked game websites
 - 📫 How to reach me is elijahsonner@outlook.com
